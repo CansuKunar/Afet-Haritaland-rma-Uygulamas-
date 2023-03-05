@@ -1,0 +1,1 @@
+# Afet-Haritaland-rma-Uygulamas-
