@@ -1,1 +1,1 @@
-# Afet-Haritaland-rma-Uygulamas-
+# Afet-Haritalandırma-Uygulaması
